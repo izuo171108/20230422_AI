@@ -1,5 +1,5 @@
 # Self-introduction
-![IELTS](task1.png)
+![Me](200322_a_exam_07-2.png)
 ## Profile
 - Name: Miyuki
 - Homeown: UK
